@@ -1,2 +1,2 @@
-# Ch-a-t-c-ng-ngh-
+# Chua-te-cong-nghe
 only techno-lord shall enter
